@@ -5,3 +5,4 @@ https://www.youtube.com/watch?v=fq25BX_ygNI …
 ->listening to the music->beatiful (37:30)
 ->(52:19) never give up
 ->work hard then appreciate (1:16:45)
+->holding hand->28:50
