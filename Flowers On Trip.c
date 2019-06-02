@@ -20,7 +20,7 @@ Flowers On Trip EP.12 20170826 Crown Prince of Denmark Attends The Show [SMG Off
 ->(1:06) exercise
 ->(1:54)pretty
 ->(3:54)pretty
-->(3:32)marriage
+->(3:32)marriage (cute)
 ->(3:37) reaction
 ->(5:50) eating
 ->(9:14) cute
@@ -29,4 +29,6 @@ Flowers On Trip EP.12 20170826 Crown Prince of Denmark Attends The Show [SMG Off
 ->(15:51) tasting food
 ->(19:24) like a little girl
 ->(34:29) her opinion about anderso
-->(36:15)
+->(36:15)eating (39:45)
+->(40:23)cute
+->(
