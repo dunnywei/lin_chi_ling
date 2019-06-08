@@ -59,3 +59,4 @@ Flowers On Trip EP.12 20170826 Crown Prince of Denmark Attends The Show [SMG Off
 https://www.youtube.com/watch?v=SHQOloILAmE
 ->(0:04)
 ->(7:19)
+ ->(9:25)
