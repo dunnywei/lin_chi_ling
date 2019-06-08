@@ -21,3 +21,10 @@ link->https://udn.com/news/story/7270/3812613
 
 2->
   Determination, persistent and never give up from 劉偉澍
+  
+3->
+  沈嶸 and 林志玲
+https://www.chinatimes.com/realtimenews/20190607002655-260404?chdtv
+
+4->
+  
