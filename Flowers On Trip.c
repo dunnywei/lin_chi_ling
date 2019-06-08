@@ -58,3 +58,4 @@ Flowers On Trip EP.12 20170826 Crown Prince of Denmark Attends The Show [SMG Off
 ->Flowers On Trip EP.13 20170902 The Journey Never End
 https://www.youtube.com/watch?v=SHQOloILAmE
 ->(0:04)
+->(7:19)
